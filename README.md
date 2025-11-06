@@ -7,3 +7,5 @@ give your alt id
 i dont have alt id
 i am not on tg 
 
+
+what? Are you okay bruh?
