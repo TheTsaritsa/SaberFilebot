@@ -13,3 +13,5 @@ what? Are you okay bruh?
 
 i am fade up of tg
 
+oh. how your bots still running without tg account 
+
