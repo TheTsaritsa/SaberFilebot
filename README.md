@@ -22,3 +22,7 @@ its in sam's account
 
 sure i will
 
+oh some of you're bots were deleted file share ones ig
+
+some no life probably mass reported my hanime channel got copyright strike
+is it possible to add another fsub for backup?
