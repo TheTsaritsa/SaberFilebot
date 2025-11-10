@@ -15,4 +15,10 @@ i am fade up of tg
 
 oh. how your bots still running without tg account 
 
-bro can you rehost Yelan if its possible 
+bro can you rehost Yelan if its possible
+
+
+its in sam's account
+
+sure i will
+
