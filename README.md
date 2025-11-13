@@ -24,5 +24,7 @@ sure i will
 
 oh some of you're bots were deleted file share ones ig
 
-some no life probably mass reported my hanime channel got copyright strike
-is it possible to add another fsub for backup?
+some no life probably mass reported my hanime channels got copyright strikes
+
+
+bruh did you rehost it?
