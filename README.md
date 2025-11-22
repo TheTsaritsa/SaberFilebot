@@ -30,3 +30,5 @@ some no life probably mass reported my hanime channels got copyright strikes
 
 bruh did you rehost it?
 let me soon
+
+alright 
