@@ -32,3 +32,6 @@ bruh did you rehost it?
 let me soon
 
 alright 
+
+when rehost 
+have to start another channel from 0
