@@ -33,5 +33,6 @@ let me soon
 
 alright 
 
-when rehost 
-have to start another channel from 0
+
+
+bro please rehost yelan
